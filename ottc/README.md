@@ -1,0 +1,1 @@
+Privacy Policy for One Touch Tally Counter app
